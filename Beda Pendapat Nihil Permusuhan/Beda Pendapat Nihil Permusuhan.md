@@ -1,5 +1,5 @@
 # Beda Pendapat Nihil Permusuhan
-**Penulis: Syeikh Abu Qatadah Al-Falestini _hafizhahullah_**
+**Penulis: Ayahanda Syeikh Umar Mahmud Abu Umar *hafizhahullah***
 
 Syeikhul Islam Ibnu Taimiyah _rahimahullah ta'ala_ berkata:
 
